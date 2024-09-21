@@ -1,1 +1,0 @@
-# sociedad_digital2024_Fernando_Santiago
